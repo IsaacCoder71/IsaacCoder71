@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @IsaacCoder71
 - 👀 I’m interested in Scratch and coding
 - 🌱 I’m currently learning game developing
-- 💞️ I’m looking to collaborate on Teams
-- 📫 How to reach me text me or Call me (nut telli my phone number)
+- 💞️ I’m looking to collaborate on Discord
+- 📫 How to reach me text me or Call me discord username: flakafrag_yt
 - 😄 Pronouns: I don't know
 - ⚡ Fun fact: Did you know that coding is very cool?
 
